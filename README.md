@@ -39,7 +39,7 @@ I'm a passionate Data Scientist and AI Developer from Cambodia 🇰🇭.
 
 ## 📫 How to reach me
 
-- LinkedIn: [linkedin.com/in/songhieng](https://www.linkedin.com/in/songhieng)
+- LinkedIn: [linkedin.com/in/songhieng](https://kh.linkedin.com/in/van-songhieng-007903186)
 
 ---
 
